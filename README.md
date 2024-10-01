@@ -35,7 +35,7 @@ https://arxiv.org/pdf/2206.05408
 
 Ваня - 
 
-Никита -
+Никита - https://openreview.net/forum?id=NsMLjcFaO8O
 
 Лена - 
 
